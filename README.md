@@ -1,5 +1,6 @@
 <img width="655" height="655" alt="image" src="https://github.com/user-attachments/assets/fbd9dc4f-6313-44c9-9a24-2233a6ae5f0d" />
-(meme stolen from his mums Instagram <3
+
+(meme stolen from his mums Instagram <3)
 
 
 
@@ -27,6 +28,10 @@ Coles Full Name: Cole McIntyre
 Coles Old Home Address: 2185 Parklawn Dr, Lewis Center, OH 43035, USA (Possibly where his parents live atm)
 
 Where Cole Currently Lives: 215 5th St, Marietta, OH 45750, United States
+
+(Not much on Coles Sister)
+
+Coles Sister Graduated: 29th May 2017 <3
 
 Proof:
 
@@ -86,6 +91,9 @@ Nice Setup/Bedroom :D
 Parents Anniversary: 8th Feburary 2002
 
 # Jennifer Davis McIntyre
+
+Vice President of Sales Resource Settlement Services
+
 Birthday: 21 October 1970
 <img width="429" height="709" alt="image" src="https://github.com/user-attachments/assets/87d2f7f4-d406-430e-b39a-0e363aaa3c3a" />
 
