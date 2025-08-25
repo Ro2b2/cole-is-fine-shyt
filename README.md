@@ -1,8 +1,10 @@
 # Cole McIntyre
 
 Dox compiled and made by White Cat
+
 With the help of Jimmy (Surprising ik, Jimmy is behind all this also)
-And no I am not the ones doing the alt account, its Jimmy, we are giving what Cole deserves for banning us. (Jimmys ban tho I sorta understand) but my one, your gonna ban me for something your fine with?
+
+And no I am not the one doing the alt accounts, its Jimmy, we are giving what Cole deserves for banning us. (Jimmys ban tho I sorta understand) but my one, your gonna ban me for something your fine with?
 
 OMG COLE UR SOOOO CUTEEE MARRY ME
 
