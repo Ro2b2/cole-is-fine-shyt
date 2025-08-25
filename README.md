@@ -6,6 +6,8 @@ With the help of Jimmy (Surprising ik, Jimmy is behind all this also)
 
 And no I am not the one doing the alt accounts, its Jimmy, we are giving what Cole deserves for banning us. (Jimmys ban tho I sorta understand) but my one, your gonna ban me for something your fine with?
 
+**INSTAGRAM DMS ARE NOT FAKE BTW, The DMs are Jimmy and Coles DM.**
+
 OMG COLE UR SOOOO CUTEEE MARRY ME
 
 
