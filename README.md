@@ -1,5 +1,9 @@
 # Cole McIntyre
 
+Dox compiled and made by White Cat
+With the help of Jimmy (Surprising ik, Jimmy is behind all this also)
+And no I am not the ones doing the alt account, its Jimmy, we are giving what Cole deserves for banning us. (Jimmys ban tho I sorta understand) but my one, your gonna ban me for something your fine with?
+
 OMG COLE UR SOOOO CUTEEE MARRY ME
 
 
@@ -8,6 +12,21 @@ Mothers Name: Jennifer Davis McIntyre
 Fathers Name: Dave McIntyre 
 
 Coles Full Name: Cole McIntyre 
+
+Coles Old Home Address: 2185 Parklawn Dr, Lewis Center, OH 43035, USA (Possibly where his parents live atm)
+
+Where Cole Currently Lives: 215 5th St, Marietta, OH 45750, United States
+
+Proof:
+
+# Old Address Proof
+<img width="1328" height="866" alt="image" src="https://github.com/user-attachments/assets/679d1952-2f76-48c7-875a-bcde18096358" />
+<img width="1080" height="1080" alt="image" src="https://github.com/user-attachments/assets/dcfb9082-cf5e-4ca1-a0bd-58ba47c1af56" />
+
+# Current Address Proof
+<img width="474" height="522" alt="image" src="https://github.com/user-attachments/assets/e44c011f-da58-4566-be6e-aa2ba4ba9b34" />
+<img width="1461" height="960" alt="image" src="https://github.com/user-attachments/assets/2ce15f8a-7430-4e56-a5f6-a212ecd840a7" />
+
 
 # Cole McIntyre
 <img width="209" height="344" alt="image" src="https://github.com/user-attachments/assets/74f821a1-0c5d-43dd-b7f0-9c6a707ea072" />
