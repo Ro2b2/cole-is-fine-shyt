@@ -94,3 +94,4 @@ Birthday: 21 October 1970
 
 # Dave McIntyre
 <img width="750" height="750" alt="image" src="https://github.com/user-attachments/assets/1e6c7cb5-0279-4492-a1ba-67d92e982d08" />
+<img width="815" height="733" alt="image" src="https://github.com/user-attachments/assets/67aefaf7-f7ac-4c11-9048-070731f99a3d" />
