@@ -1,4 +1,11 @@
+<img width="655" height="655" alt="image" src="https://github.com/user-attachments/assets/fbd9dc4f-6313-44c9-9a24-2233a6ae5f0d" />
+(meme stolen from his mums Instagram <3
+
+
+
+
 # Cole McIntyre
+<img width="283" height="356" alt="image" src="https://github.com/user-attachments/assets/fbbd7954-8e2d-4d30-a54b-2187feebc27b" />
 
 Dox compiled and made by White Cat
 
@@ -58,7 +65,11 @@ Cole I heard you like Drake liking them young
 <img width="221" height="363" alt="image" src="https://github.com/user-attachments/assets/9c087813-0ee5-4579-a27b-d41b456cd7b5" />
 
 Cole charging up his racism 
+
+
 <img width="228" height="88" alt="image" src="https://github.com/user-attachments/assets/e609f8bb-e0ae-4471-a2f1-a00782c8c571" />
+
+
 <img width="340" height="596" alt="image" src="https://github.com/user-attachments/assets/445a9125-3309-4fea-80b5-e23f2ade0fd9" />
 
 A video Cole sent in Jimmys DMs
@@ -72,11 +83,14 @@ Nice Setup/Bedroom :D
 <img width="1290" height="1260" alt="image" src="https://github.com/user-attachments/assets/7306e7a0-c408-4e95-8c52-f62cc910bf52" />
 
 
+Parents Anniversary: 8th Feburary 2002
 
-Too lazy to write info bout Jennifer Davis McIntyre and Dave McIntyre so heres their face
+# Jennifer Davis McIntyre
+Birthday: 21 October 1970
+<img width="429" height="709" alt="image" src="https://github.com/user-attachments/assets/87d2f7f4-d406-430e-b39a-0e363aaa3c3a" />
 
-Jennifer
+
 <img width="1732" height="2048" alt="image" src="https://github.com/user-attachments/assets/e5bbc8c3-d325-4e43-b3a4-1bbb42837f4a" />
 
-Dave
+# Dave McIntyre
 <img width="750" height="750" alt="image" src="https://github.com/user-attachments/assets/1e6c7cb5-0279-4492-a1ba-67d92e982d08" />
